@@ -2,4 +2,4 @@
 
 يمكنكم مشاهدة الفيديو التعليمي على هذا الرابط
 
-video link: https://youtu.be/7733u-EQ5Bc
+https://youtu.be/7733u-EQ5Bc
